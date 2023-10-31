@@ -1,0 +1,1 @@
+# Senchola-Intern-BS-Tastebuddies
